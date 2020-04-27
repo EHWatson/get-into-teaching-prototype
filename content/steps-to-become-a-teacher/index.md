@@ -28,7 +28,7 @@ If you want to teach in a primary or secondary school you can apply for postgrad
 To study for ITT, you’ll need:
 
   - grade 4 (C) or above in English and maths GCSE
-  - grade 4 (C) or above in GCSE science if you want to teach primary
+  - science GCSE grade 4 (C) or above, if you want to teach at primary school
 
 If you do not have GCSEs in English, maths and science, you’ll need to show that you have an equivalent level of education.
 
